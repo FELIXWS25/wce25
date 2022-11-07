@@ -1,1 +1,1 @@
-# wce25
+https://felixws25.github.io/wce25/
